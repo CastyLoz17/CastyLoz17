@@ -8,7 +8,7 @@ aka silly, toaster, or idk call me "that one furry down the road"
 
 i speak fluent 🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈
 
-currently living in singapore, screaming into the void from a windows machine
+currently living in singapore, i use arch btw
 
 feel free to poke around my repos, steal my code (pls don't cry), or drop me a meow if u wanna :3
 
