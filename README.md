@@ -5,7 +5,6 @@ aka silly, toaster, or idk call me "that one furry down the road"
 🐍 python gremlin (backend stuff mostly)
 🧨 known for horrible ideas. if my code works, it’s a cry for help
 🦈 certified blahaj enjoyer™ — life is blahaj. blahaj is life.
-📞 discord is "downright.sillyy", give me a dm and i may choose to respond :3c
 
 i speak fluent 🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈🦈
 
